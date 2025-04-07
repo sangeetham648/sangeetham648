@@ -21,4 +21,4 @@ I love transforming complex problems into simple, beautiful, and intuitive user 
 
 📫 Let’s Connect
 - 📧 Email : sangeetham648@gmail.com
-- 💼 <a href="https://linkedin.com/in/https://www.linkedin.com/in/sangeetha-m-2081361a1/" target="blank">LinkedIn</a>
+- 💼 <a href="https://www.linkedin.com/in/sangeetha-m-2081361a1/" target="blank">LinkedIn</a>
