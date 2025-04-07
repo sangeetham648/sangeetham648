@@ -21,5 +21,5 @@
 📄 Know about my experiences 👉 [https://drive.google.com/file/d/1u4_2zb2-vsoFUlq-uHIsYCddUkhaPnnC/view?usp=sharing](https://drive.google.com/file/d/1u4_2zb2-vsoFUlq-uHIsYCddUkhaPnnC/view?usp=sharing)
 
 📫 Let’s Connect
-- 📧 Email : sangeetham648@gmail.com
+- 📧 sangeetham648@gmail.com
 - 💼 <a href="https://www.linkedin.com/in/sangeetha-m-2081361a1/" target="blank">LinkedIn</a>
