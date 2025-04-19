@@ -18,7 +18,7 @@
 
 💻 All of my projects are available at 👉 [https://github.com/sangeetham648?tab=repositories](https://github.com/sangeetham648?tab=repositories)
 
-📄 Know about my experiences 👉 [https://drive.google.com/file/d/1u4_2zb2-vsoFUlq-uHIsYCddUkhaPnnC/view?usp=sharing](https://drive.google.com/file/d/1u4_2zb2-vsoFUlq-uHIsYCddUkhaPnnC/view?usp=sharing)
+📄 Know about my experiences 👉 [https://drive.google.com/file/d/1JEBDW0y2-LDLKh0v8UCSIqHS_IPeF3yj/view?usp=drive_link](https://drive.google.com/file/d/1JEBDW0y2-LDLKh0v8UCSIqHS_IPeF3yj/view?usp=drive_link)
 
 📫 Let’s Connect
 - 📧 sangeetham648@gmail.com
